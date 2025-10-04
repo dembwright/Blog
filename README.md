@@ -1,0 +1,2 @@
+# About this Blog
+This blog's purpose is for me to write down my thoughts about current topics. I try to sift through bias information to determine what is accurate and make sense of the world. I try to read inforamtion from both left leaning news and right leaning news. Whatever they agree on, it is safe to take as accurate. Whatever they disagree on is where there is partisanship. It's important to see how both sides frame issues in order to understand their goals (future) and viewpoint (past). 
